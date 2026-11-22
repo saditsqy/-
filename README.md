@@ -1,5 +1,5 @@
 ### 🧭⚓ Welcome to my GitHub.! 
-soo uhh hello I'm saditsqy,but you can call me sadi if you want (I can't think of a good nickname tehehe,but meh it's ok.),and uhh am 14yold above more. (I have been diagnosed with ADHD.)
+soo uhh hello I'm saditsqy,but you can call me sadi if you want (I can't think of a good nickname tehehe,but meh it's ok.),and uhh am 14yold. (I have been diagnosed with ADHD ok.)
 
 ###### 📝 about me...
 
